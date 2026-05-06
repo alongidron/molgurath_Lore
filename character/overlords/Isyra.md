@@ -123,4 +123,5 @@ When the Ice Lord was finally freed, it was Isyra who stood beside him, guiding 
 
 And through this act—through strength, patience, and resolve—Isyra reclaimed everything she had once lost.
 
-<img width="1024" height="1536" alt="image" src="https://github.com/user-attachments/assets/a65d8c36-1d60-40d0-82b9-a09f09af2868" />
+<img width="1024" height="1300" alt="image" src="https://github.com/user-attachments/assets/a65d8c36-1d60-40d0-82b9-a09f09af2868" />
+[Back to Overlord](../overlords.md)
