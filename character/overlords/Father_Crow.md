@@ -8,7 +8,7 @@ Father Crow's source of magic leaves in his mind, which help him realize that he
 ---
 ![image](https://github.com/user-attachments/assets/edf1025d-1ba9-4919-be47-9be16afddec8)
 
-<div style="color: red; font-weight: bold; text-align: center;">
+<p style="color: red; font-weight: bold; text-align: center;">
 
   <p style="margin-bottom: 1400px; font-size: 50px;">Avoid at all cost</p>
   <p><a href="/molgurath_Lore/character/overlords.md">Back to Overlord</a></p>
@@ -25,7 +25,7 @@ Father Crow's source of magic leaves in his mind, which help him realize that he
   <p style="margin-bottom: 1400px; font-size: 50px;"> Even if you learn about him you will still die to him</p>
   <p><a href="/molgurath_Lore/character/overlords.md">Back to Overlord</a></p>
   
-<div>
+</p>
 ---
 
 *Still here?*  
