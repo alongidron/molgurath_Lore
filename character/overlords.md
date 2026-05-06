@@ -42,4 +42,5 @@ The **Overlords’ Agreement** reshaped Grymmwald into a realm of calculated ten
 - ###  [Queen Cruel](overlords/Queen_Cruel.md)
 - ###  [Vorakhel](overlords/Vorakhel_the_darklord.md)
 - ###  [Isyra](overlords/Isyra.md)
+- ###  [Urmeth](overlords/Urmeth.md)
 [Back to Characters](characters.md)
