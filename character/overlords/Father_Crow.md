@@ -8,43 +8,37 @@ Father Crow's source of magic leaves in his mind, which help him realize that he
 ---
 ![image](https://github.com/user-attachments/assets/edf1025d-1ba9-4919-be47-9be16afddec8)
 
- <p style="color:red; font-weight:bold; text-align:center; margin-bottom:1400px; font-size:50px;">
+<p style="color:red; font-weight:bold; font-size:50px; text-align:center;">
 Avoid at all cost
 </p>
 
-<p style="text-align:center;">
+<p style="text-align:center; margin-bottom:1400px;">
 <a href="/molgurath_Lore/character/overlords.md">Back to Overlord</a>
 </p>
 
-<p style="color:red; font-weight:bold; text-align:center; margin-bottom:1400px; font-size:50px;">
+<p style="color:red; font-weight:bold; font-size:50px; text-align:center;">
 Highly dangerous
 </p>
 
-<p style="text-align:center;">
+<p style="text-align:center; margin-bottom:1400px;">
 <a href="/molgurath_Lore/character/overlords.md">Back to Overlord</a>
 </p>
 
-<p style="color:red; font-weight:bold; text-align:center; margin-bottom:1400px; font-size:50px;">
+<p style="color:red; font-weight:bold; font-size:50px; text-align:center;">
 You will die
 </p>
 
-<p style="text-align:center;">
+<p style="text-align:center; margin-bottom:1400px;">
 <a href="/molgurath_Lore/character/overlords.md">Back to Overlord</a>
 </p>
 
-<p style="color:red; font-weight:bold; text-align:center; margin-bottom:1400px; font-size:50px;">
-You can move on now
-</p>
-
-<p style="text-align:center;">
-<a href="/molgurath_Lore/character/overlords.md">Back to Overlord</a>
-</p>
 ---
 
-*Still here?*  
-Then you’re either **too foolish**… or **already too far gone.**  
+*Still here?*
 
-Very well. Let me tell you about the one **even gods avoid…**  
+Then you're either **too foolish**... or **already too far gone.**
+
+Very well. Let me tell you about the one **even gods avoid...**
 
 ---
 
