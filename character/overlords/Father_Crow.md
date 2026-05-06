@@ -34,6 +34,8 @@ You will die
 
 ---
 
+<div style="text-align:left;">
+
 *Still here?*
 
 Then you're either **too foolish**... or **already too far gone.**
