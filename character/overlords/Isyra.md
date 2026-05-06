@@ -85,7 +85,7 @@ And more than anything, she was stunned that it had survived—even after her de
 
 As Isyra’s memories returned, Elyxara felt it immediately—something was wrong. Before she could react or speak, Isyra vanished without a word.
 
-Isyra first returned to her castle, only to find it in ruins. What she had built in her former life was gone, reduced to echoes and stone. Seeking answers, she traveled north to the Ice Lord’s domain, but he too had disappeared, his presence erased as if he had never ruled.
+Isyra first returned to her castle, only to find it in ruins. What she had built in her former life was gone, reduced to echoes and stone. Seeking answers, she traveled north to Urmeth’s domain, but he too had disappeared, his presence erased as if he had never ruled.
 
 With dread growing in her chest, Isyra went to Velmora. There, she finally learned the truth. Velmora told her everything that had occurred after her death—the wars, the losses, and the price paid by those she had once stood beside.
 
@@ -115,11 +115,11 @@ Although Zephyron commanded both wind and lightning, Isyra chose to take only hi
 
 From time to time, she allowed herself brief breaks—often to help Elyxara care for her children—but beyond that, Isyra remained distant from the events that unfolded across the realms. Years passed in near silence.
 
-Then one day, Velmora came to her. She revealed her intention to free the Ice Lord and warned Isyra that his mind might not survive his imprisonment. She would need Isyra’s help if he lost himself.
+Then one day, Velmora came to her. She revealed her intention to free Urmeth and warned Isyra that his mind might not survive his imprisonment. She would need Isyra’s help if he lost himself.
 
 Isyra agreed.
 
-When the Ice Lord was finally freed, it was Isyra who stood beside him, guiding him back to himself before madness could take hold. Together, they rebuilt his frozen kingdom, restoring what had been broken by time and loss.
+When Urmeth was finally freed, it was Isyra who stood beside him, guiding him back to himself before madness could take hold. Together, they rebuilt his frozen kingdom, restoring what had been broken by time and loss.
 
 And through this act—through strength, patience, and resolve—Isyra reclaimed everything she had once lost.
 
