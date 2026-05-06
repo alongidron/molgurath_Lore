@@ -144,4 +144,4 @@ He was sealed away.
 
 Thus ended the reign of the Overlord of the North—not in defeat, but in tragedy. A king who had once saved his people, who had stood against chaos itself, was buried beneath seals and silence… feared not for what he had done, but for what he might one day become again.
 
-<img width="1024" height="1336" alt="image" src="https://github.com/user-attachments/assets/d9d2f176-0652-4954-81a4-f36e11d5a5db" />
+<img width="1000" height="800" alt="image" src="https://github.com/user-attachments/assets/d9d2f176-0652-4954-81a4-f36e11d5a5db" />
