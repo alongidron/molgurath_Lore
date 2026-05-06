@@ -20,12 +20,11 @@ Father Crow's source of magic leaves in his mind, which help him realize that he
   <p><a href="/molgurath_Lore/character/overlords.md">Back to Overlord</a></p>
 
   <p style="margin-bottom: 1400px; font-size: 50px;">You can move on now</p>
-
-</div>
-  <p style="margin-bottom: 1400px; font-size: 50px;"> You can move on now</p>
+  <p><a href="/molgurath_Lore/character/overlords.md">Back to Overlord</a></p>
+  
   <p style="margin-bottom: 1400px; font-size: 50px;"> Even if you learn about him you will still die to him</p>
+  <p><a href="/molgurath_Lore/character/overlords.md">Back to Overlord</a></p>
 
-</div>
 ---
 
 *Still here?*  
