@@ -408,7 +408,7 @@ But the darkest whisper of all was reserved for the desperate.
 
 Those broken enough to beg for one last chance, those who would do anything to rise again—  
 They knew the truth.  
-**Father Crow would find them.**
+Father Crow would find them.
 
 
 [Back to Overlord](../overlords.md)
