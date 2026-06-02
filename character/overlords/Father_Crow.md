@@ -398,19 +398,21 @@ From that day forward, Father Crow abandoned his grand schemes of conquest. Inst
 
 
 His name became more than a title. It became a warning.  
-**Legends whispered:**  
+<p><strong>Legends whispered:</strong></p>
 
-*If you see him—hide.*  
-*If he sees you—pray.*  
-*And if he’s interested in you… run.*  
+<p><em>If you see him—hide.</em><br>
+<em>If he sees you—pray.</em><br>
+<em>And if he’s interested in you… run.</em></p>
 
-But the darkest whisper of all was reserved for the desperate.  
+<p>
+But the darkest whisper of all was reserved for the desperate.
+</p>
 
-Those broken enough to beg for one last chance, those who would do anything to rise again—  
-They knew the truth.  
+<p>
+Those broken enough to beg for one last chance, those who would do anything to rise again—<br>
+They knew the truth.<br>
 Father Crow would find them.
+</p>
 
-
-[Back to Overlord](../overlords.md)
-
+<p><a href="../overlords.html">Back to Overlord</a></p>
 ---
