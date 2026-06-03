@@ -171,7 +171,7 @@ To accomplish his new ambition, Father Crow knew he had to expand his empire, gr
 The conquered were not given freedom. Those who survived were shackled beneath his will, forced to wear his cursed masks. In their pain and obedience, his army swelled. But Father Crow sought more than numbers—he demanded order. To enforce this, he established a hierarchy of ranks:
 
 
-# Soldiers — each strong enough to kill a bear.  
+ **Soldiers** — each strong enough to kill a bear.  
 
 
 # Commanders — warriors capable of felling a dragon.  
@@ -188,7 +188,7 @@ Father Crow’s hunger for strength did not stop with conquest. He collected wea
 
 To ensure his Winged Generals remained worthy of their station, he imposed two cruel tests.  
 
-# First: They were forbidden from wielding more than seventy percent of their strength in battle. If they could not dominate their enemies with such restraint, then they were unfit to hold the title—and unworthy to serve him. Mercy was never the lesson; mastery was.  
+**First**: They were forbidden from wielding more than seventy percent of their strength in battle. If they could not dominate their enemies with such restraint, then they were unfit to hold the title—and unworthy to serve him. Mercy was never the lesson; mastery was.  
 
 # Second From time to time, each Winged General was forced to face him directly. These duels were not meant to be won—only survived. To endure even a fraction of his abyssal might and rise again was proof of their strength. To falter was proof of their weakness.
 
