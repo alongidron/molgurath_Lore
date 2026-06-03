@@ -174,13 +174,13 @@ The conquered were not given freedom. Those who survived were shackled beneath h
  **Soldiers** — each strong enough to kill a bear.  
 
 
-# Commanders — warriors capable of felling a dragon.  
+ **Commanders** — warriors capable of felling a dragon.  
 
 
-# Generals — leaders whose strength could crush entire armies.  
+ **Generals** — leaders whose strength could crush entire armies.  
 
 
-# Winged Generals — the pinnacle of his forces, beings powerful enough to bring down cities.  
+ **Winged Generals** — the pinnacle of his forces, beings powerful enough to bring down cities.  
 
 
 Father Crow’s hunger for strength did not stop with conquest. He collected weapons from fallen enemies, studying their designs, their flaws, and their potential. Through this pursuit, he came to a grim conclusion: the rapier, delicate and demanding, was the most difficult weapon to master. And so he made it his chosen blade, forcing his body and skill to bend to its ruthless precision.
@@ -190,7 +190,7 @@ To ensure his Winged Generals remained worthy of their station, he imposed two c
 
 **First**: They were forbidden from wielding more than seventy percent of their strength in battle. If they could not dominate their enemies with such restraint, then they were unfit to hold the title—and unworthy to serve him. Mercy was never the lesson; mastery was.  
 
-# Second From time to time, each Winged General was forced to face him directly. These duels were not meant to be won—only survived. To endure even a fraction of his abyssal might and rise again was proof of their strength. To falter was proof of their weakness.
+**Second** From time to time, each Winged General was forced to face him directly. These duels were not meant to be won—only survived. To endure even a fraction of his abyssal might and rise again was proof of their strength. To falter was proof of their weakness.
 
 
 Over the years, Father Crow’s insatiable hunger for power became a problem for all who dwelled within the realms. Creatures whispered of him with dread, plotted his assassination, and poured their hatred into death wishes against his name. Yet none succeeded.  
@@ -211,7 +211,7 @@ The shock did not end there. The echo of his defiance reached farther—into the
 
 Yet where divinity seethed, death itself was pleased. Death admired the cruelty, the relentlessness, the certainty of Father Crow’s dominion—and in turn, Death rewarded him.
 
-# Death rewarded Father Crow three times, each gift deepening his dominion.**  
+**Death rewarded Father Crow three times, each gift deepening his dominion.**  
 
 **First:** Death bound the souls of his fallen soldiers to him. When they died, they did not pass to the afterlife but remained tethered, stored for later use as Father Crow saw fit.  
 
