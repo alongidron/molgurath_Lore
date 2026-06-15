@@ -3,7 +3,13 @@
 **Age:** Unknown    
 **Size:** 1.68     
 **Magic:** gravity
-**Source of Magic:** 
+**Source of Magic:** The first Bell King found the heart of a dead god.
+
+Instead of consuming it, he forged it into the first Royal Bell.
+
+Every royal descendant carries a fragment of that heart.
+
+Gravity is simply the remnant of the god's authority. 
 # Lore
 
 Bell was born into the royal family of the Bell Kingdom, one of the oldest Overlord bloodlines in existence. For generations, the Bell royalty had a single obsession: war.
