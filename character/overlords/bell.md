@@ -3,6 +3,7 @@
 **Age:** Unknown    
 **Size:** 1.68     
 **Magic:** gravity
+
 **Source of Magic:** The first Bell King found the heart of a dead god.
 
 Instead of consuming it, he forged it into the first Royal Bell.
