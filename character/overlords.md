@@ -43,4 +43,5 @@ The **Overlords’ Agreement** reshaped Grymmwald into a realm of calculated ten
 - ###  [Vorakhel](overlords/Vorakhel_the_darklord.md)
 - ###  [Isyra](overlords/Isyra.md)
 - ###  [Urmeth](overlords/Urmeth.md)
+- ###  [Bell](overlords/bell.md)
 [Back to Characters](characters.md)
