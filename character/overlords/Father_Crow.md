@@ -6,6 +6,7 @@
 **Source of Magic:** The God of the Abyss  
 Father Crow's source of magic leaves in his mind, which help him realize that he can do anything he wants with the magic of the abyss 
 ---
+<img width="1023" height="1537" alt="image" src="https://github.com/user-attachments/assets/90577a44-fbb8-401d-9805-c3a60a629f93" />
 
 <p style="color:red; font-weight:bold; font-size:50px; text-align:center;">
 Avoid at all cost
