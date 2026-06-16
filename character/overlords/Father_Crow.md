@@ -6,41 +6,6 @@
 **Source of Magic:** The God of the Abyss  
 Father Crow's source of magic leaves in his mind, which help him realize that he can do anything he wants with the magic of the abyss 
 ---
-<img width="1023" height="1537" alt="image" src="https://github.com/user-attachments/assets/2403fdbd-001b-4194-a8ca-9745defc118f" />
-
-<p style="color:red; font-weight:bold; font-size:50px; text-align:center;">
-Avoid at all cost
-</p>
-
-<p style="text-align:center; margin-bottom:1400px;">
-<a href="/molgurath_Lore/character/overlords.html">Back to Overlord</a>
-</p>
-
-<p style="color:red; font-weight:bold; font-size:50px; text-align:center;">
-Highly dangerous
-</p>
-
-<p style="text-align:center; margin-bottom:1400px;">
-<a href="/molgurath_Lore/character/overlords.md">Back to Overlord</a>
-</p>
-
-<p style="color:red; font-weight:bold; font-size:50px; text-align:center;">
-You will die
-</p>
-
-<p style="text-align:center; margin-bottom:1400px;">
-<a href="/molgurath_Lore/character/overlords.md">Back to Overlord</a>
-</p>
-
----
-
-## Still here?
-
-Then you're either **too foolish**... or **already too far gone.**
-
-Very well. Let me tell you about the one **even gods avoid...**
-
----
 
 ## Lore
 Father Crow—one of the most powerful, dangerous, and cruel overlords you will ever face— but he was not always that way. Once, he was known as Gabriel, a creative and joyful child born into the wrong crow clan.
@@ -410,6 +375,9 @@ Those broken enough to beg for one last chance, those who would do anything to r
 They knew the truth.<br>
 Father Crow would find them.
 </p>
+
+<img width="1023" height="1537" alt="image" src="https://github.com/user-attachments/assets/2403fdbd-001b-4194-a8ca-9745defc118f" />
+
 
 <p><a href="../overlords.html">Back to Overlord</a></p>
 ---
