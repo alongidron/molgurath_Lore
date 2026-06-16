@@ -13,7 +13,7 @@ Avoid at all cost
 </p>
 
 <p style="text-align:center; margin-bottom:1400px;">
-<a href="/molgurath_lore/character/overlords">Back to Overlord</a>
+<a href="/molgurath_Lore/character/overlords/">Back to Overlord</a>
 </p>
 
 <p style="color:red; font-weight:bold; font-size:50px; text-align:center;">
