@@ -126,11 +126,11 @@ Father Crow, dazed and weakened, struggled to understand. Osricain revealed his 
 
 When Father Crow woke again, the horses lay dead around him, the battlefield twisted into ruin. Osricain claimed that during his slumber, he had spoken with the God of the Abyss. With a gesture, he teleported them to the throne room of the crow king.
 
-General Velterra struck first, swinging his colossal hammer in a crushing arc. He was too slow. Father Crow severed his arm and sent him crashing backward with a savage kick. As he raised his weapon to finish him, a gust of cutting wind forced him aside. Osricain stepped forward, bidding him to leave the battlefield behind and strike only at the king, while he dealt with the rest.
+General Orran struck first, swinging his colossal hammer in a crushing arc. He was too slow. Father Crow severed his arm and sent him crashing backward with a savage kick. As he raised his weapon to finish him, a gust of cutting wind forced him aside. Osricain stepped forward, bidding him to leave the battlefield behind and strike only at the king, while he dealt with the rest.
 
 The battle within the throne room ended swiftly once Father Crow gained the upper hand. The king, realizing too late that he had underestimated him, abandoned his crown and fled into the shadows.
 
-When Father Crow returned, the chamber was littered with the defeated. Osricain was nowhere to be seen, and Velterra slumped against the wall, broken but still alive. Father Crow fixed his gaze on him and forced his submission, demanding that every crow be bound with the cursed masks—or suffer the loss of his remaining arm.
+When Father Crow returned, the chamber was littered with the defeated. Osricain was nowhere to be seen, and Orran slumped against the wall, broken but still alive. Father Crow fixed his gaze on him and forced his submission, demanding that every crow be bound with the cursed masks—or suffer the loss of his remaining arm.
 
 With his command delivered, Father Crow turned to a darker purpose. He walked the path back to his childhood home, where his family awaited. One by one, he slaughtered them all, sparing only his brother Jakob, whom he cast into another dimension.
 
@@ -139,7 +139,7 @@ When the blood had settled, he called upon the abyss. With his power, he rebuilt
 Only then did Father Crow return to his castle, his vengeance complete and his power deepened by the cruelty he had wrought.
 
 
-As Father Crow returned, disappointment shadowed his face. Velterra had not donned the mask. Instead, he studied it warily, having seen the agony it brought to those who wore it.
+As Father Crow returned, disappointment shadowed his face. Orran had not donned the mask. Instead, he studied it warily, having seen the agony it brought to those who wore it.
 
 Curiosity drove him to question its purpose. Why such torment? Why such resistance in every crow that touched it?
 
@@ -147,9 +147,9 @@ In his rare good mood, Father Crow obliged. The masks, he explained, were forged
 
 But the masks did more than enslave. They tested strength. A crow unworthy of Father Crow’s standard would wear it in vain—their eyes would remain dark, lifeless. Only those whose gaze burned with an abyssal glow would be deemed strong enough to endure.
 
-The explanation unsettled Velterra further. The thought of surrendering both his freedom and his mind left him colder than the pain itself. Instead, he offered Father Crow a bargain. As long as his true arm remained severed, he would devote himself to service—no matter how cruel or meaningless the task.
+The explanation unsettled Orran further. The thought of surrendering both his freedom and his mind left him colder than the pain itself. Instead, he offered Father Crow a bargain. As long as his true arm remained severed, he would devote himself to service—no matter how cruel or meaningless the task.
 
-Father Crow considered the offer and, amused by its humility, accepted. He then gave Velterra his first command: to gather those whose eyes did not glow beneath the masks, and shape them into an army. Not soldiers of glory, but a legion of the broken—an army of failure, bound in darkness to serve his growing empire.
+Father Crow considered the offer and, amused by its humility, accepted. He then gave Orran his first command: to gather those whose eyes did not glow beneath the masks, and shape them into an army. Not soldiers of glory, but a legion of the broken—an army of failure, bound in darkness to serve his growing empire.
 
 
 Then Father Crow returned to his throne room, its doors groaning open beneath his touch. The moment he stepped inside, steel cut through the air—a blade hurled with deadly precision. It missed him by an inch, striking the stone wall.
@@ -317,7 +317,7 @@ Fascinated by this anomaly, Father Crow chose not to kill the human but to keep 
 
 Then he gave his command. All territories were to be abandoned if necessary, and every soldier and creature brought together. Victory was not optional—it was absolute. His generals protested, warning that relinquishing lands would weaken their grasp, but Father Crow silenced them. Conquest could wait. Survival and triumph came first.  
 
-And so they gathered. Even those once branded as traitors, like **Koronis** and **Byleistr**, returned to serve under him once more. From the shadows also came **Gaster Stone, the demon lord**, pledging his strength to Father Crow’s cause.  
+And so they gathered. Even those once branded as traitors, like **Koronis** and **Byleistr**, returned to serve under him once more. From the shadows also came **Sevrin Null, the demon lord**, pledging his strength to Father Crow’s cause.  
 
 A storm was gathering, and Father Crow meant to meet it with everything he had.
 
@@ -336,9 +336,9 @@ With a surge of abyssal might, Charly conjured a barrier, holding Father Crow ba
 
 When Father Crow’s blood was spilled across the ground, Charly seized it. He tried to drink it, hoping to wield Father Crow’s abyssal magic against him. But Father Crow reacted faster, shattering the glass before it touched his lips.  
 
-Charly snarled, readying another spell—when a blast struck him from the side. **Gaster Stone** had entered the fray, alongside a **moon demon** whose magic roared like a storm. Together, they overwhelmed Charly, and with a final eruption of energy, the demon god was cast from the battlefield.  
+Charly snarled, readying another spell—when a blast struck him from the side. **Sevrin Null** had entered the fray, alongside a **moon demon** whose magic roared like a storm. Together, they overwhelmed Charly, and with a final eruption of energy, the demon god was cast from the battlefield.  
 
-Father Crow returned to the chaos of the war, only to find that **Staticus** and **Nightmare** were nowhere to be seen. Of the demon gods who remained, only **Mammon** and **Leviathan** still fought. Leviathan fell swiftly, his bulk crashing into the earth. Mammon resisted longer, but in the end, he too was broken.
+Father Crow returned to the chaos of the war, only to find that **Staticus** and **Nightmare** were nowhere to be seen. Of the demon gods who remained, only **Asmodeus** and **Leviathan** still fought. Leviathan fell swiftly, his bulk crashing into the earth. Asmodeus resisted longer, but in the end, he too was broken.
 
 
 
