@@ -93,4 +93,6 @@ When the Devil overthrew Hell and seized control of the Infernal Realm, Bloody M
 
 Years later, when Queen Cruel returned to life, Bloody Mary immediately resumed her service. Though she had built her own following and earned her own legend, her loyalty to the queen who had saved her from despair had never faded.
 
+<img width="1122" height="1402" alt="image" src="https://github.com/user-attachments/assets/37677508-6c76-404b-92ab-93968752b547" />
 
+[Back to Humans](../human.md)
