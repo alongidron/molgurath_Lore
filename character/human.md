@@ -8,4 +8,5 @@ Those who endured the slaughter now carry the heavy burden of their fallen kin. 
 
 [Charlan-Kirreth](Humans/Charlan-Kirreth.md)
 [Bloody_Marry](Humans/bloody_mary.md)
+
 [Back to Characters](characters.md)
