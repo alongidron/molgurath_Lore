@@ -6,6 +6,6 @@ His army is one of the biggest among the overlords, with about 4 million.
 
 ### [Father Crow](Father_Crow.md)
 
-### [Army](army/FCarmyindex.md)
+### [Army](army/armyindex.md)
 
 [Back to Overlords](../overlords.md)
