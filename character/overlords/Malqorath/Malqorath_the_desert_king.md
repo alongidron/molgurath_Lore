@@ -1,12 +1,9 @@
 # Malqorath
 
-**Age:** Unknown  
-
-**Size:** 2.5 meters
-
-**Magic**: Sand, Divine Magic (Egyptian Gods), 
-
-**Source of Magic**: Natural sand magic and the divine chain created by Ra, granting Malqorath access to the combined magic and mana of the Egyptian gods.
+### **Age:** Unknown  
+### **Size:** 2.5 meters
+### **Magic**: Sand, Divine Magic (Egyptian Gods), 
+### **Source of Magic**: Natural sand magic and the divine chain created by Ra, granting Malqorath access to the combined magic and mana of the Egyptian gods.
 ---
 
 ## Lore
