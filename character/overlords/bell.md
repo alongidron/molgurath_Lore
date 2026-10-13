@@ -4,7 +4,7 @@
 **Size:** 1.68     
 **Magic:** gravity  
 **Source of Magic:** stone of gravity; Bell proved that you don't need your own magic source to be powerful as an overlord
-
+--- 
 # Lore
 
 Bell was born into the royal family of the Bell Kingdom, one of the oldest Overlord bloodlines in existence. For generations, the Bell royalty had a single obsession: war.
