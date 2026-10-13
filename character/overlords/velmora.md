@@ -1,7 +1,7 @@
 # Velmora
 
 **Age:** Unknown    
-**Size:** 1.75      
+**Size:** 2.5 m      
 **Magic:** everything     
 **Source of Magic:** her witch's artifact and other witches
 One of Velmora's greatest creations was the crystal ball she used to prevent her ascension into godhood. Rather than simply sealing away half of her power, Velmora converted that power into a vast reserve of mana stored within the artifact.
