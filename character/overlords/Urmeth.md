@@ -1,7 +1,7 @@
 # Urmeth
 
 **Age:** Unknown    
-**Size:** 3.50 m   
+**Size:** 8 m   
 **Magic:** ice    
 **Source of Magic:** the god of ice Glasivor 
 ---
