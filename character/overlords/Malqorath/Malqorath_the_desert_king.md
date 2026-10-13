@@ -86,6 +86,6 @@ The Desert King stood once more—unshaken, unbroken, and complete.
 
 <img width="1122" height="1402" alt="image" src="https://github.com/user-attachments/assets/46d4221e-3fcd-4338-9b6e-bd5be75c6bbc" />
 
-[Back to Overlord](../../MDKindex.md)
+[Back to Overlords](./MDKindex.md)
 
 
