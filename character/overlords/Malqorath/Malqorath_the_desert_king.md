@@ -1,10 +1,9 @@
 # Malqorath
 
 **Age:** Unknown  
-**Size:** 2.5 meters (varies depending on form)  
-**Magic:** desert
-**Source of Magic:** The God of the Abyss  
-Father Crow's source of magic leaves in his mind, which help him realize that he can do anything he wants with the magic of the abyss 
+**Size:** 2.5 meters
+**Magic**: Sand, Divine Magic (Egyptian Gods)
+**Source of Magic**: Natural sand magic and the divine chain created by Ra, granting Malqorath access to the combined magic and mana of the Egyptian gods.
 ---
 
 ## Lore
