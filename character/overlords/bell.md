@@ -1,7 +1,7 @@
 # bell
 
 **Age:** Unknown    
-**Size:** 2.8 m     
+**Size:** 3.5 or 1.2m (varies depending on form)     
 **Magic:** gravity  
 **Source of Magic:** stone of gravity; Bell proved that you don't need your own magic source to be powerful as an overlord
 --- 
