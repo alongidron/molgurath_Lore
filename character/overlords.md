@@ -39,7 +39,7 @@ The **Overlords’ Agreement** reshaped Grymmwald into a realm of calculated ten
 ## Known Overlords
 
 - ###  [Father Crow](overlords/father_crow/FCindex.md)
-- ###  [Queen Cruel](overlords/Queen_Cruel.md)
+- ###  [Queen Cruel](overlords/Queen_Cruel/QCindex.md)
 - ###  [Vorakhel](overlords/Vorakhel_the_darklord.md)
 - ###  [Isyra](overlords/Isyra.md)
 - ###  [Urmeth](overlords/Urmeth.md)
