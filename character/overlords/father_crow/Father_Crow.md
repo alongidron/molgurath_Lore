@@ -376,7 +376,7 @@ They knew the truth.<br>
 Father Crow would find them.
 </p>
 
-<img width="900" height="1100" alt="image" src="https://github.com/user-attachments/assets/2403fdbd-001b-4194-a8ca-9745defc118f" />
+<img width="900" height="900" alt="image" src="https://github.com/user-attachments/assets/2403fdbd-001b-4194-a8ca-9745defc118f" />
 
 
 <p><a href="../overlords.html">Back to Overlord</a></p>
