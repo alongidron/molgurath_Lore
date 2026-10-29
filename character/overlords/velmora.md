@@ -204,3 +204,405 @@ The kingdom no longer needed her on its throne.
 The new queen had proven herself worthy of the crown.
 
 So Velmora allowed her to remain queen while she continued handling matters beyond the kingdom's borders—particularly those involving Overlords.
+After leaving the Witch Kingdom in the care of the new Witch Queen, Velmora resumed her journey across the world. There were still countless lands to explore, countless forms of magic to study, and countless powerful beings to meet.
+
+However, before she could travel far, news reached her ears.
+
+Charly was organizing a tournament for the Overlords.
+
+Naturally, Velmora was interested.
+
+The tournament would gather many of the world's strongest Overlords in one place, and she welcomed the opportunity to demonstrate her power before them.
+
+Upon arriving, however, she discovered a rule that immediately infuriated her.
+
+Each participant would be limited to only three types of magic of their choosing.
+
+Velmora was furious.
+
+She had spent centuries mastering countless forms of magic. Restricting her to only three felt absurd. In her eyes, it was no different than asking a swordsman to fight with one arm tied behind his back.
+
+She immediately confronted Charly and demanded that he make an exception.
+
+Charly refused.
+
+He simply informed her that the tournament had rules, and those rules applied to everyone.
+
+Velmora argued.
+
+Charly remained unmoved.
+
+Eventually, Velmora accepted what she already knew.
+
+Arguing with demons was usually pointless.
+
+Arguing with Charly was completely pointless.
+
+Reluctantly, she chose her three schools of magic and entered the tournament.
+
+The restriction proved far more limiting than she expected, and she failed to advance very far in the competition.
+
+Despite her disappointment, Velmora found herself enjoying the event. Watching the battles between powerful Overlords gave her valuable insight into their abilities, strengths, and weaknesses.
+
+By the time the tournament concluded, she had learned far more than she had expected.
+
+With the competition over, Velmora once again set out to explore the world, continuing her endless pursuit of knowledge, magic, and powerful opponents.
+
+Velmora's travels came to an abrupt end when news reached her that the Witch Kingdom was under massive attack.
+
+She immediately returned home.
+
+What she found shocked her.
+
+Not only was the kingdom struggling to recover from the conflict, but a different queen now sat upon the throne.
+
+Velmora revealed her identity to the new queen and demanded to know what had happened during her absence.
+
+The queen did not welcome her warmly.
+
+Instead, she openly criticized Velmora for abandoning the kingdom and leaving others to deal with the consequences. For perhaps the first time in a very long while, Velmora found herself unable to argue.
+
+She understood that the queen was right.
+
+The kingdom had suffered while she was away pursuing her own interests.
+
+Recognizing her mistake, Velmora remained in the kingdom and helped rebuild what had been damaged.
+
+However, one question continued to bother her.
+
+Where had the Overlord Alliance been?
+
+Why had none of the Overlords come to help?
+
+Seeking answers, Velmora traveled to Charly and demanded an explanation.
+
+Charly's response immediately irritated her.
+
+According to him, he had offered to take charge of the alliance and coordinate its actions long ago. Both Bell and Velmora had rejected the idea, insisting that he remain only a host rather than a leader.
+
+So Charly had done exactly what they asked.
+
+Nothing.
+
+After all, he was merely the host.
+
+Velmora wanted to intimidate him into giving a different answer. She wanted to remind him that she was one of the strongest Overlords in existence.
+
+But she also knew it would accomplish nothing.
+
+Threatening a Demon God—and especially Charly—was pointless.
+
+More importantly, her kingdom mattered far more than winning an argument.
+
+So she returned home.
+
+Determined to prevent similar disasters in the future, Velmora gifted the Witch Queen a crystal ball capable of storing her mana. Whenever the queen needed it, she could draw upon the stored energy, allowing her to wield power far beyond her normal limits.
+
+Velmora ensured that every future Witch Queen would receive a crystal ball of her own, establishing a tradition that would continue for generations. Over the years, these powerful crystal balls became known as the Witch Queen Artifacts.
+
+Over the following years, Velmora remained far more involved in the affairs of the Witch Kingdom. She stood beside each queen, helping defend the realm against the many threats that arose.
+
+Most of these conflicts were wars against powerful warlords and ambitious rulers seeking to claim the kingdom's wealth and influence.
+
+Then everything changed.
+
+One day, an angel gathered the members of the Overlord Alliance and presented them with an offer.
+
+True peace.
+
+The angel claimed that the celestial forces could eliminate the warlords and many of the problems that constantly threatened their territories.
+
+In exchange, the Overlords would join Heaven in its war against Hell.
+
+The proposal divided the alliance.
+
+To Velmora's surprise, Caleb—better known as Father Crow—became one of its strongest supporters.
+
+He argued that siding with Heaven would benefit the alliance and allow them to solve problems that had plagued their lands for generations.
+
+Against expectations, Father Crow managed to convince many of the Overlords.
+
+One by one, support for the proposal grew.
+
+Before long, much of the alliance was considering the unthinkable:
+
+Turning against Charly and siding with the angels.
+
+On the day the war began, Velmora originally intended to go after Charly himself. However, after considering the situation, she decided that her daughter would be a far better opponent for the Demon God.
+
+Instead, Velmora chose a different target.
+
+Lucifer.
+
+As the strongest mage in Hell, Velmora believed that defeating him would greatly weaken the enemy and help secure victory for the alliance.
+
+What she did not expect was that Lucifer had no intention of participating in the war.
+
+When Velmora arrived at his chambers, she found him waiting for her.
+
+And once she entered, he refused to let her leave.
+
+No battle took place.
+
+No great duel shook the heavens.
+
+Instead, Lucifer simply kept her there.
+
+For the entire duration of the war, Velmora remained trapped within Lucifer's chambers.
+
+No matter what she tried, he prevented her from returning to the battlefield.
+
+Eventually, the war came to an end.
+
+Only then did Lucifer open the doors and allow her to leave.
+
+Before she departed, he admitted that he had been mistaken.
+
+Keeping Velmora occupied had not improved Hell's chances of victory.
+
+If anything, it had only increased the number of casualties suffered by both sides.
+
+Nevertheless, he thanked her for the company and closed the doors behind her.
+
+When Velmora returned, she was shocked by what she discovered.
+
+Several Overlords had died during the war.
+
+Wanting to understand what had happened, she attempted to gather the remaining members of the alliance.
+
+No one answered.
+
+The Overlord Alliance had effectively fallen apart.
+
+At first, it seemed as though the angels had fulfilled their promise.
+
+The warlords that had plagued countless territories were gone.
+
+True peace appeared to have arrived.
+
+But the peace did not last.
+
+Without demons to oppose them, many gods began expanding their influence and claiming territory for themselves.
+
+The Overlords had been weakened by the war, and many of their strongest members were dead or missing.
+
+There was no one left capable of stopping the gods from taking control of lands that had once belonged to the Overlords.
+
+Velmora wanted to intervene.
+
+She wanted to rebuild the alliance and push back against the growing influence of the gods.
+
+But another problem demanded her attention.
+
+The Witch Kingdom was beginning to fracture.
+
+Political divisions spread throughout the kingdom, disagreements grew more severe, and eventually an entire group of witches chose to leave and establish their own path.
+
+Several years passed in relative peace.
+
+During that time, Velmora learned more about the group of witches that had left the kingdom during the great division.
+
+Their leader was a powerful witch named Izalith.
+
+Unlike most witches, Izalith had chosen a far more aggressive path. Rather than merely opposing the influence of the gods, she actively hunted them.
+
+When Velmora learned of Izalith's campaign, she chose to join her.
+
+Together, they waged war against the remaining gods who sought to control mortal lands. One by one, those gods fell.
+
+After witnessing Izalith's strength, determination, and accomplishments, Velmora came to a conclusion.
+
+Izalith was worthy of the title of Overlord.
+
+Recognizing her as an equal, Velmora welcomed Izalith into the Overlord Alliance.
+
+For a time, everything seemed perfect.
+
+The warlords were gone.
+
+The demons no longer threatened the world.
+
+The gods had been driven back or slain.
+
+At long last, the peace Velmora had spent centuries seeking had become reality.
+
+But peace brought with it a new problem.
+
+As the years passed, Velmora began noticing a troubling pattern among the queens of the Witch Kingdom.
+
+Each new generation was weaker than the one before.
+
+Without great wars, powerful enemies, or constant struggles, the queens no longer needed to push themselves to their limits. They still possessed tremendous magical talent, but their growth had slowed.
+
+Generation after generation, the decline continued.
+
+At first, Velmora ignored it.
+
+Then she became concerned.
+
+Eventually, she became frustrated.
+
+The final straw came with the newest queen.
+
+Like Velmora herself, the young queen had been blessed with an affinity for all forms of magic. Such a gift was extraordinarily rare and should have allowed her to reach unimaginable heights.
+
+Yet despite possessing the same potential, she was nowhere near Velmora's level.
+
+For Velmora, this was proof that the kingdom had grown complacent.
+
+The witches had become too comfortable.
+
+Too safe.
+
+Too dependent on peace.
+
+Determined to restore the strength and glory of the Witch Kingdom, Velmora made a radical decision.
+
+She would bring back the queens of the past.
+
+The greatest rulers, warriors, scholars, and mages in the kingdom's history would walk the world once more.
+
+Through them, Velmora intended to restore the standards that had once made the Witch Kingdom one of the most powerful nations in existence.
+
+Velmora's plan to revive the ancient Witch Queens became her primary focus for many years. She studied forgotten rituals, searched for lost knowledge, and gathered every piece of information she could find regarding resurrection magic.
+
+However, her research was interrupted by an unexpected event.
+
+A shift in power among the Dark Lords.
+
+Curious, Velmora traveled to investigate and discovered a newly risen Dark Lord named Vorakhel.
+
+The moment she sensed his power, she recognized his potential.
+
+Unlike the other Dark Lords, Vorakhel possessed the strength and will necessary to become something greater.
+
+Velmora approached him with an offer.
+
+If he could survive for the next fifty-five thousand years, she would free him from the endless cycle of the Dark Lords.
+
+She already knew when the opportunity would come.
+
+A rare celestial event in which all the stars would align into a single line. During this event, witch magic would reach its greatest possible strength.
+
+For the next fifty-five thousand years, Velmora continued preparing.
+
+She searched for the greatest resurrection spell ever created, refined every detail of the ritual, and trained Vorakhel so he would be ready when the time arrived.
+
+At last, the stars aligned.
+
+Velmora brought Vorakhel to the graveyard of the Witch Queens.
+
+She knew her own mana would not be enough to power the ritual. Even with her crystal ball and limitless reserves of mana, the spell required more energy than a single caster could provide.
+
+That was why she needed Vorakhel.
+
+As the ritual began, Velmora poured unimaginable amounts of mana into the spell. Vorakhel followed behind her, feeding his own power into the growing magical formation.
+
+The ritual continued for hours.
+
+Then days.
+
+Neither stopped.
+
+Even as the strain began damaging her body, Velmora continued feeding mana into the spell.
+
+Blood ran down her skin.
+
+Her vision blurred.
+
+Still, she continued.
+
+Eventually, the ritual was complete.
+
+And nothing happened.
+
+The graveyard remained silent.
+
+The queens did not return.
+
+For the first time in centuries, Velmora began to doubt herself. She was certain she had followed every step correctly.
+
+Exhausted and wounded, she fell to her knees.
+
+Then the sky changed.
+
+A vast golden ring formed above them.
+
+Radiant.
+
+Ancient.
+
+Foreign.
+
+Velmora stared upward in shock.
+
+The phenomenon was far beyond anything she had expected.
+
+The spell's reaction was nearly a hundred times stronger than her calculations predicted.
+
+She did not understand what had happened.
+
+But she saw the impossible become reality.
+
+The Witch Queens were returning.
+
+Relieved, Velmora thanked Vorakhel for his assistance.
+
+She promised that once her mana recovered, she would honor her word and free him from the Dark Lord cycle.
+
+Using what little strength remained, she sent him away.
+
+Then she felt something approaching.
+
+Fast.
+
+Very fast.
+
+Before she could prepare herself, the Librarian appeared.
+
+And he was furious.
+
+The Librarian demanded to know whether she had any understanding of what she had just done.
+
+Confused, Velmora calmly explained that she had merely revived the Witch Queens.
+
+The Librarian informed her that she had done far more than that.
+
+The ritual had exceeded its intended purpose.
+
+It had not revived the Witch Queens alone.
+
+It had revived everyone.
+
+Every undestroyed soul across existence had been returned to life.
+
+For a moment, even Velmora was speechless.
+
+The Librarian eventually calmed down.
+
+After all, he knew Velmora had never intended such a result. More importantly, he had far greater problems to deal with now.
+
+Countless souls had suddenly returned to existence.
+
+Without another word, the Librarian departed.
+
+Velmora quickly informed the revived queens of what had happened.
+
+The consequences of her spell would reshape the world.
+
+With the ancient queens restored, Velmora formally reclaimed her position as ruler of the witches once more.
+
+True to her promise, she later returned and freed Vorakhel from the Dark Lord cycle.
+
+Recognizing his potential, she invited him to join the Overlord Alliance.
+
+Now, with both ancient and modern Overlords walking the world once again, Velmora turned her attention toward rebuilding.
+
+The Witch Kingdom would be restored.
+
+The Overlord Alliance would be rebuilt.
+
+And the world would learn to live with the consequences of the greatest resurrection spell ever cast.
+
+<img width="1024" height="1536" alt="image" src="https://github.com/user-attachments/assets/5215116c-f77c-4a40-8e49-95433215ed95" />
+
